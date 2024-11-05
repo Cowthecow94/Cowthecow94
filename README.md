@@ -1,2 +1,2 @@
-Hi, I’m @Cowthecow94
+Hi, I’m @Cowthecow94.
 I am working on a project that might go public, only if I can get it to work...
