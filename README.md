@@ -1,2 +1,2 @@
 Hi, I’m @Cowthecow94.
-I am working on a project that might go public, only if I can get it to work...
+I am the person who made cowthecow94.github.io, which is for by passing school blocks.
